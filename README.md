@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding, designing and problem-solving
 - 🌱 I’m currently in my learning phase
 - 💞️ I’m looking to collaborate on with IT companies
-- 📫 You can contact me at : Email-palakjagpal.99@gmail.com, Linkedin- https://www.linkedin.com/feed/ , Twitter- https://x.com/home?lang=en
+- 📫 You can contact me at : Email-palakjagpal70@gmail.com, Linkedin- https://www.linkedin.com/in/palak-jagpal-000b25369/, Twitter- https://x.com/jagpal_palak
 - 😄 Pronouns: She/Her
 - I Love to draw, read and play badminton
 
